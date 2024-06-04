@@ -1,6 +1,6 @@
 ## Sejam muito bem vindos ao meu pefil_
 
-- Estou cursando o ALURA pela escoola Ana Franco da Rocha Brando
+- Estou cursando o ALURA pela escola Ana Franco da Rocha Brando
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 💗
 
   ### Você pode entrar em contato comigo 📱
